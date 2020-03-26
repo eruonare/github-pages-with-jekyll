@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Welcome to the christ blog 
 
-I'm glad you are here. I plan to talk about ...
+in this blog we will be talking of the work of christ.
+we will be discussing the following topics:
+his incarnation
